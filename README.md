@@ -1,0 +1,1 @@
+# ayurved_BAMS
